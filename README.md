@@ -24,6 +24,6 @@ Twitter: @YourTwitterHandle
 📚 Education
 Bachelor of Laws (LLB): [Ebonyi state university], [2022/2023]
 🏆 Achievements
-[Any relevant awards or recognitions you want to highlight.]
+[populary known for my intrest in data analytics in my learning centre.]
 🌟 Interests
 Legal Tech, Data Privacy, Coding, Storytelling, Continuous Learning
