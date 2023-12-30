@@ -19,7 +19,7 @@ Contributor at LegalTech-Open: Actively participating in open-source projects re
 My GitHub Stats
 
 📫 Let's Connect
-LinkedIn: Ike-Oruh Ezinne Jubilee
+LinkedIn: https://www.linkedin.com/in/jubilee-ike-oruh-7870792a6?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app
 Twitter: @YourTwitterHandle
 📚 Education
 Bachelor of Laws (LLB): [Ebonyi state university], [2022/2023]
